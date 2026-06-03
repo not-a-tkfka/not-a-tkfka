@@ -18,5 +18,5 @@ Here's the list of what I can do:
 ### ☎️ Contact me! 
 [Gitlab (where all the goods are)](https://gitlab.com/cxnfl1ct) - [Twitter](https://x.com/@Cxnfl1ct_)
 
-(My E-mail address)[mailto://cxnfl1ct@proton.me]
+(My E-mail address)[mailto:cxnfl1ct@proton.me]
 (My Discord account)[https://app.discord.com/user/https://gitlab.com/cxnfl1ct]

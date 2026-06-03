@@ -1,0 +1,22 @@
+# 🐾️ not-a-tkfka 🐾️
+---
+Hello! 💞️
+I'm not-a-tkfka aka silly meower coder
+
+Here's the list of what I can do:
+> yea it's not much \*awkward laugh*
+- Code in C
+- Code in C for embedded devices
+- Code in C++ (partially)
+- Code in asm (partially)
+- Code in Python
+- Code in .Lua (partially)
+- HTML, CSS and very basic JS
+- Mess with linux
+- goob around and be silli
+
+## ☎️ Contact me! 
+__**[Gitlab (where all the goods are)](https://gitlab.com/cxnfl1ct)**__ - [Twitter](https://x.com/@Cxnfl1ct_)
+
+(My E-mail address)[mailto://cxnfl1ct@proton.me]
+(My Discord account)[https://app.discord.com/user/https://gitlab.com/cxnfl1ct]

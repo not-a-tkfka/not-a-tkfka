@@ -16,7 +16,7 @@ Here's the list of what I can do:
 - goob around and be silli
 
 ### ☎️ Contact me! 
-__**[Gitlab (where all the goods are)](https://gitlab.com/cxnfl1ct)**__ - [Twitter](https://x.com/@Cxnfl1ct_)
+[Gitlab (where all the goods are)](https://gitlab.com/cxnfl1ct) - [Twitter](https://x.com/@Cxnfl1ct_)
 
 (My E-mail address)[mailto://cxnfl1ct@proton.me]
 (My Discord account)[https://app.discord.com/user/https://gitlab.com/cxnfl1ct]

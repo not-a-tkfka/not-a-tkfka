@@ -1,7 +1,7 @@
 # 🐾️ not-a-tkfka 🐾️
 ---
 Hello! 💞️
-I'm not-a-tkfka aka silly meower coder
+I'm not-a-tkfka aka the silly meower coder :3
 
 Here's the list of what I can do:
 > yea it's not much \*awkward laugh*

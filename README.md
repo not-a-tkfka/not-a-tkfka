@@ -15,7 +15,7 @@ Here's the list of what I can do:
 - Mess with linux
 - goob around and be silli
 
-## ☎️ Contact me! 
+☎️ Contact me! 
 __**[Gitlab (where all the goods are)](https://gitlab.com/cxnfl1ct)**__ - [Twitter](https://x.com/@Cxnfl1ct_)
 
 (My E-mail address)[mailto://cxnfl1ct@proton.me]

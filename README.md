@@ -4,7 +4,7 @@ Hello! 💞️
 I'm not-a-tkfka aka the silly meower coder :3
 
 Here's the list of what I can do:
-> yeah it's not much... \*awkward laugh*
+> yeah it's not much... \*laughs awkwardly*
 - Code in C
 - Code in C for embedded devices
 - Code in C++ (partially)

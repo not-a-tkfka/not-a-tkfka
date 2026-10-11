@@ -22,4 +22,4 @@ Here's the list of what I can do:
 [My Discord](https://app.discord.com/user/cxnfl1ct)
 
 ---
--# This page or any of my codes were never, isn't, will never be ~~AI~~*slop🤮* powered!
+> This page or any of my repositories were never, isn't, will never be *slop🤮* powered!

@@ -20,3 +20,6 @@ Here's the list of what I can do:
 
 [My E-mail](mailto:cxnfl1ct@proton.me)
 [My Discord](https://app.discord.com/user/cxnfl1ct)
+
+---
+-# This page or any of my codes were never, isn't, will never be ~~AI~~*slop🤮* powered!
